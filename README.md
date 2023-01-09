@@ -12,7 +12,7 @@
 
 5.PART 2-https://youtu.be/BvZkvlAj5HU
 
-6.SUBSCRIBE TO MY CHANNEL NITINSAI.AVIRNENI ---> youtube.com/channel/UCssOxLs65FBUIqffuTfGiew
+6.SUBSCRIBE TO MY CHANNEL NITINSAI.AVIRNENI ---> https://www.youtube.com/channel/UCssOxLs65FBUIqffuTfGiew
 
 
 ###########################OVER VIEW OF THE  SOFTWARE##################################!
